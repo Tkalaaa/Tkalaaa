@@ -1,6 +1,6 @@
 - 👋 Discord - ᴛ ᴋ ᴀ ʟ ᴀ™#2021
 - 👀 Developing FiveM server and Discord Bots
-- 📫 Kontaktirajte me putem Discorda
+- 📫 Contact me using Discord!!!
 - 💞️
 
 <!---
